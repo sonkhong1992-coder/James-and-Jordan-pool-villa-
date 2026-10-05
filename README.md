@@ -1,6 +1,5 @@
 James & Jordan Pool Villa — Guest Welcome Guide
 
-James & Jordan Pool Villa
 Welcome to Ao Nang, Krabi
 
 🏡 Address
