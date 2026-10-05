@@ -1,59 +1,165 @@
-VILLAS WELCOME
-Welcome to your home away from home • Ao Nang, Krabi
+James & Jordan Pool Villa — Guest Welcome Guide
 
-We are delighted to welcome you. We hope you enjoy a relaxing and memorable stay.
-Please keep this guide handy during your stay. If you need any assistance, contact our villa team.
+James & Jordan Pool Villa
+Welcome to Ao Nang, Krabi
 
-JAMES & JORDAN VILLA • AO NANG
-Guest Information Guide
-02 | VILLA INFORMATION
-Address
-420 M.5, Ao Nang, Mueang Krabi, Krabi 81180, Thailand
-Contact
+🏡 Address
+420 Moo 5, Ao Nang, Krabi 81180, Thailand
 
+We are delighted to welcome you to James & Jordan Pool Villa.
+We hope you enjoy a relaxing, comfortable and memorable stay.
 
-Check-in & check-out
-Check-in: ____________    Check-out: ____________
-For assistance during your stay, please contact Nui or Kam. In an emergency, call the relevant emergency number on page 3.
-03 | EMERGENCY & USEFUL NUMBERS
-In an emergency, tell the operator your location: 420 M.5, Ao Nang, Mueang Krabi, Krabi 81180.
+⸻
 
-Convenience stores
-7-Eleven stores are available around Ao Nang, including a 24-hour branch in the area. Use your map app to find the nearest open branch.
-Taxi & transfers
+🕐 CHECK-IN & CHECK-OUT
 
-When booking, confirm the fare, pickup point, destination and whether the price is per car or per person.
-04 | PLACES TO VISIT
-Approximate distances from the villa area. Travel time varies with traffic and the exact route; please check a map before departure.
+Check-in: 2:00 PM
+Check-out: 11:00 AM
 
-Distances are indicative only and should be verified against the villa’s exact map pin before printing.
-05 | RESTAURANTS & GETTING THERE
-A few well-known dining options in Ao Nang. Please confirm opening hours and availability before visiting.
+Please contact us in advance if you need assistance with your arrival or departure.
 
-Directions
-Open Google Maps or Apple Maps and enter the restaurant name, then choose “Directions”.
-For taxi pickup, share the villa address and confirm the fare before starting the trip.
-For restaurants or attractions with similar names, check the map pin and address before leaving.
-Tip: Ask the driver to confirm the return pickup plan, especially for locations outside the main Ao Nang area.
-06 | HOUSE RULES
-Please treat the villa and its furnishings with care, as you would your own home.
-Please keep noise to a reasonable level, especially between 10:00 PM and 8:00 AM.
-No smoking inside the villa. If smoking is permitted outdoors, please use the designated area and dispose of cigarette ends safely.
-Please do not exceed the maximum number of registered guests. Visitors must be approved by the host.
-Children must be supervised at all times, especially near the swimming pool and stairs.
-Do not leave children unattended in or around the pool. No diving; enter the pool carefully.
-Please switch off air-conditioning, lights and electrical appliances when leaving the villa.
-Please do not move furniture or take indoor items outside.
-Please place rubbish in the designated bins and keep food sealed to avoid attracting insects or animals.
-Please report any damage, maintenance issue or safety concern to the host as soon as possible.
-Please lock doors and close windows when leaving. Keep valuables secure.
-Check-out: please leave the villa tidy, return keys as instructed and inform the host when you depart.
+⸻
 
-Thank you for respecting our home and helping us keep it comfortable for everyone.
-We wish you a wonderful stay in Ao Nang!
-Damages & Breakages
-Guests are kindly requested to take good care of the villa and all its furnishings, appliances, and equipment.
-Any damage, breakage, or loss of property during your stay must be reported to the host immediately.
-Guests may be responsible for the cost of repair or replacement of items damaged or lost due to negligence or misuse.
-The cost of any damage will be assessed fairly and discussed with the guest before any payment is requested.
-Please do not attempt to repair damaged items yourself. Contact the host for assistance.
+📶 WI-FI
+
+Wi-Fi Network 1: Renlong7_2G
+Password: Nn171035
+
+Wi-Fi Network 2: James and Jordan_5G
+Password: Nn171035
+
+For the best connection, please choose the network with the strongest signal in your location.
+
+⸻
+
+📞 CONTACT US
+
+WhatsApp / Emergency Contact
++66 952678706
+
+Email
+s.onkhong1992@gmail.com
+
+Please contact us anytime if you need assistance during your stay.
+
+⸻
+
+🚨 EMERGENCY NUMBERS IN THAILAND
+
+Police: 191
+Medical Emergency / Ambulance: 1669
+Fire & Rescue: 199
+Tourist Police: 1155
+Disaster Warning: 1784
+
+In a serious emergency, please call the appropriate emergency number first, then contact us.
+
+⸻
+
+🏡 HOUSE RULES
+
+✅ PLEASE DO
+
+• Please treat the villa and its belongings with care.
+• Keep doors and windows closed when using the air conditioning.
+• Turn off lights, air conditioning and electrical appliances when leaving the villa.
+• Keep the villa clean and tidy during your stay.
+• Please use the swimming pool responsibly and supervise children at all times.
+• Please report any damage, malfunction or problem to us as soon as possible.
+• Respect the neighbours and the local community.
+• Please keep noise at a reasonable level, especially at night.
+• Please take care of keys, remote controls and other villa equipment.
+
+❌ PLEASE DO NOT
+
+• No smoking inside the villa.
+• No parties or events without prior approval.
+• No excessive noise or behaviour that disturbs neighbours.
+• Do not move furniture or villa equipment unnecessarily.
+• Do not take villa towels, bedding or other property outside the villa.
+• Do not use the villa for illegal activities.
+• Do not damage walls, furniture, appliances, pool equipment or other property.
+• Do not leave children unattended around the swimming pool.
+• Do not leave food or rubbish exposed, as this may attract insects or animals.
+
+⸻
+
+💦 SWIMMING POOL SAFETY
+
+Please use the swimming pool responsibly.
+
+• Children must be supervised by an adult at all times.
+• No running around the pool.
+• No diving in shallow areas.
+• Please do not bring glassware into the pool area.
+• Please shower before entering the pool if necessary.
+• Guests use the swimming pool at their own responsibility.
+
+⸻
+
+💰 DAMAGE & COMPENSATION POLICY
+
+We understand that accidents can happen. Please inform us immediately if anything is damaged or broken.
+
+Guests are responsible for any damage, loss or missing items caused during their stay.
+
+Compensation will be based on the actual cost of repair or replacement.
+
+• If an item can be repaired, the charge will be based on the actual repair cost.
+• If an item cannot be repaired, the charge will be based on the actual replacement cost.
+• Lost or missing items will be charged according to the actual replacement cost.
+• Any professional cleaning or restoration required because of misuse or negligence may also be charged at the actual cost.
+
+We appreciate your honesty and cooperation. Please report any accident or damage as soon as possible so that we can find the best solution together.
+
+⸻
+
+🌴 RECOMMENDED PLACES TO VISIT IN KRABI
+
+🏖️ Ao Nang Beach
+
+A convenient place to enjoy the beach, restaurants, cafés, shops and local atmosphere. Ao Nang is also a major starting point for boat trips to nearby islands. (tourismthailand.org⁠￼)
+
+🏝️ Railay Beach & Phra Nang Beach
+
+Famous for beautiful beaches, dramatic limestone cliffs and rock climbing. Railay is easily accessible by boat from the Ao Nang area. (tourismthailand.org⁠￼)
+
+🏝️ Hong Islands
+
+Beautiful turquoise water, beaches and excellent opportunities for swimming and snorkelling. (tourismthailand.org⁠￼)
+
+🏝️ 4 Islands & Thale Waek
+
+A popular island trip featuring beautiful beaches and the famous Separated Sea (Thale Waek), where sandbars appear between the islands when the tide is low. (tourismthailand.org⁠￼)
+
+💎 Emerald Pool
+
+A beautiful natural freshwater pool surrounded by rainforest, popular with visitors looking for a nature experience away from the beach. (tourismthailand.org⁠￼)
+
+♨️ Klong Thom Hot Springs
+
+Natural hot-water pools surrounded by forest, offering a relaxing experience in nature. (tourismthailand.org⁠￼)
+
+🛕 Tiger Cave Temple
+
+A famous Krabi temple and nature destination known for its mountain setting and spectacular views. (tourismthailand.org⁠￼)
+
+🌅 Krabi Walking Street
+
+A good option for local food, shopping and experiencing the atmosphere of Krabi town. The Tourism Authority of Thailand lists the Walking Street as a Friday–Sunday attraction. (thai.tourismthailand.org⁠￼)
+
+⸻
+
+❤️ ENJOY YOUR STAY
+
+Thank you for choosing James & Jordan Pool Villa.
+
+We hope you enjoy your time in beautiful Krabi and create wonderful memories with us.
+
+Need help?
+WhatsApp: +66 952678706
+Email: s.onkhong1992@gmail.com
+
+James & Jordan Pool Villa
+Your home in Ao Nang, Krabi
+
